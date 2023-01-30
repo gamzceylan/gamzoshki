@@ -1,1 +1,1 @@
-https://gamzceylan.github.io/gamzoshki/
+hi! i'm gamzoshki
